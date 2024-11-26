@@ -12,3 +12,6 @@ O Gemini foi usado para trazer ideias para o projeto, elaborar os diálogos, al�
 
 ## 🚀 Resultados
 Podcast desmistificando e quebrando medos e tabus sobre IAs.
+
+
+[LINK PARA O PODCAST AQUI](https://murf.ai/share/m3xrorc6)
